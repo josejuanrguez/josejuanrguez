@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @josejuanrguez
+- 👀 I’m interested in Linux, programming and trading forex..
+- 🌱 I’m currently learning programming.
+- 💞️ I’m looking to collaborate on any interesting project.
+- 📫 How to reach me: josejuanrguez@yahoo.com
